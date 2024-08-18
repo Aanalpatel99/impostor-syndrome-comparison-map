@@ -1,4 +1,3 @@
-Here's an engaging and visually appealing GitHub project description for your "Impostor Syndrome Comparison Map" project:
 
 ---
 
